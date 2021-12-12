@@ -1,4 +1,4 @@
-👋 In continued search for answers in the environment using data, communication and creativity as main tools of action. 
+👋 In continued search for answers in the environment using data, communication and creativity as main tools. 
 
 👀 Curious and always enjoy learning new things.
 
