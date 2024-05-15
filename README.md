@@ -1,8 +1,10 @@
-👋 In continued search for answers in the environment using data, communication and creativity as main tools. 
+👋 In continued search for answers using data, communication and creativity as main tools.  
 
-👀 Curious and always enjoy learning new things.
+👀 Curious and learning new things.
 
-🌱 A kind of philomat and problem-solving mindset.
+🌱 A problem-solving mindset.
+
+https://www.linkedin.com/in/matiasfrank/
 <!---
 matifrank/matifrank is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
